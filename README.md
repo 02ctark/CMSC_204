@@ -1,2 +1,2 @@
 # CMSC_204
-i hate ocding
+summer 22 montgomery college cource
